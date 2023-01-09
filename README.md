@@ -1,7 +1,7 @@
 - 👋🏻 Hi, I’m @airjohnpro
-- 👀 I’m interested in being present
-- 🌱 I’m currently learning mindfulness 
-- 💞️ I’m looking to collaborate on loving kindness
+- 👀 I’m interested in being more present
+- 🌱 I’m currently learning mindfulness and practicing "the power of now"
+- 💞️ I’m looking to collaborate through loving kindness
 - 👨🏼‍💻 How to reach me: airjohnpro.com
 
 <!---
