@@ -1,6 +1,6 @@
 - 👋🏻 Hi, I’m @airjohnpro
 - 👀 I’m interested in being more present
-- 🌱 I’m currently learning mindfulness and practicing "the power of now"
+- 🌱 I’m currently focused on mindfulness and practicing "the power of now"
 - 👨🏼‍💻 How to reach me: https://linktr.ee/airjohnpro
 
 <!---
