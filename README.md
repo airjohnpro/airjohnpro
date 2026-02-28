@@ -1,7 +1,7 @@
 - 👋🏻 Hi, I’m @airjohnpro
 - 👀 I’m interested in being more present
 - 🌱 I’m currently focused on mindfulness and practicing "the power of now"
-- 👨🏼‍💻 How to reach me: https://airjohnpro.com
+- 👨🏼‍💻 How to reach me: https://bsky.app/profile/airjohnpro.bsky.social
 
 <!---
 airjohnpro/airjohnpro is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
