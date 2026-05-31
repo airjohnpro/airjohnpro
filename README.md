@@ -1,5 +1,5 @@
 - 👋🏻 Hi, I’m @airjohnpro
-- 👀 I’m interested in being more present
+- 👀 I’m interested in technology, operations management and logistic
 - 🌱 I’m currently focused on mindfulness and practicing "the power of now"
 - 👨🏼‍💻 How to reach me: https://bsky.app/profile/airjohnpro.bsky.social
 
